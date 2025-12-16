@@ -64,7 +64,7 @@ Smart VPN does not knowingly collect personal information from children under 13
 We may update this Privacy Policy from time to time.
 Any changes will be reflected on this page.
 
-9. Contact Us
+9. Contact Us help.mzstudio@gmail.com
 
 If you have questions about this Privacy Policy, contact us at:
 Email: smartvpn.support@gmail.com
