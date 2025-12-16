@@ -67,4 +67,4 @@ Any changes will be reflected on this page.
 9. Contact Us help.mzstudio@gmail.com
 
 If you have questions about this Privacy Policy, contact us at:
-Email: smartvpn.support@gmail.com
+Email: help.mzstudio@gmail.com
